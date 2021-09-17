@@ -1,3 +1,3 @@
 # Demo
 
-This is just for fun~~~
+~*~This is just for fun~*~
